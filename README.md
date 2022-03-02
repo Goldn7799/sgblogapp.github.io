@@ -6,6 +6,6 @@ Follow My TikTok @syeifgamer1015
 chat Telegram @sultoniakbarr
 And subscribe My YouTube SyeifGamer1015
 
-# Discord Server
-COMMING SOON
+# Github
+https://github.com/Goldn7799
 
