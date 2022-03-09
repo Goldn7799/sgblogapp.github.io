@@ -9,3 +9,6 @@ And subscribe My YouTube SyeifGamer1015
 # Github
 https://github.com/Goldn7799
 
+# Discord
+https://discord.gg/RujsWpe5px
+
